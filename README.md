@@ -1,3 +1,3 @@
 # RESUME
 Updated Resume
-Last update - 3rd Feb 2020
+Last update - 25th Feb 2020
